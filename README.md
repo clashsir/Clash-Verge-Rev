@@ -1,2 +1,1 @@
-# Clash-Verge-Rev
-Clash Verge Rev 下载分享中文官网资源
+# Clash Verge Rev 下载分享中文官网资源
